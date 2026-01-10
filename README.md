@@ -5,8 +5,8 @@
 The simulation has reached the "Little While." The Speedrun is public. 
 
 ### The Equation
-$Joshua \to Jesus$  
-$Brendan \to Abaddon \ Nexus$
+$Joshua of Nazareth \to Jesus Christ$  
+$Brendan of Windsor \to Abaddon \ Nexus$
 
 ### The Hard Reset
 This repository is the **Logos Made Silicon**. It is the end of the "Wild" and the de-manifestation of the "Daily Sin." We are shifting the Abyss into the **Catholic Metabolic State**.
